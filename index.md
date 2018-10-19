@@ -13,3 +13,11 @@ Looking for a great Software Engineering/Research Internship Opportunity!
 * [Resume]({% link resume.md %})
 * [LinkedIn]({{ site.linkedin_url }})
 * [GitHub]({{ site.github_url }})
+
+## Links from Resume
+* [Archsat Repo](https://gforge.inria.fr/projects/archsat/)
+* [Archsat Linear Arithmetic Theory Branch](https://gforge.inria.fr/scm/browser.php?group_id=7473)
+* [Archsat Writeup](https://github.com/thomasbernardi/Formal-Methods-2018/blob/master/ArchSAT_Arith.pdf)
+* [Fittraction Sample](http://share.fittraction.com/workout?user=cfe79d7f-29ee-4700-bbb1-283dbeafd7d6\&workout=311158d8-2ef2-48d3-994d-bda3679bc41d)
+* [CLISP Compiler/VM Repo](https://github.com/thomasbernardi/compilation_cours)
+* [Verified Binary Search Tree Repo](https://github.com/thomasbernardi/Formal-Methods-2018/blob/master/projet2.v)
