@@ -22,11 +22,7 @@ title: Resume
 | Research in Formal Methods | LIRMM (CNRS/University of Montpellier) | May - July2018 |
 | Software Engineering Intern | Fittraction | July - August2017 |
 | Web Development | Freelancing | June 2017 |
-| Technical Market Researcher | ITF Pharma / Women’s Choice Pharmaceuticals | June 2016 - January 2018 |
-| | Full Time Internat HQ in Pennsylvania | Summer 2016 |
-| | Part Time Consultant (Remotely Employed) | 2017 - 2018 |
-| Technology Intern | Snohomish School District IT Department | June - August 2015 |
-| | Installed, configured and commissioned various technologies in classrooms and district facilities | |
-| Teaching Assistant | Kumon of Alderwood & Woodinville | June 2015 - June 2016 |
-| | Grade classwork & give feedback and help to students pre-K through high school |
+| Technical Market Researcher | ITF Pharma / Women’s Choice Pharmaceuticals {::nomarkdown}<ul><li><i>Full Time Internat HQ in Pennsylvania - Summer 2016</i></li><li><i>Part Time Consultant (Remotely Employed) - 2017 - 2018</i></li></ul>{:/} | June 2016 - January 2018 |
+| Technology Intern | Snohomish School District IT Department <br/>*Installed, configured and commissioned various technologies in classrooms and district facilities*| June - August 2015 |
+| Teaching Assistant | Kumon of Alderwood & Woodinville <br/> *Grade classwork & give feedback and help to students pre-K through high school*| June 2015 - June 2016 |
 | Maintenance Assistant | Canoe Island French Camp | August 2016 |
