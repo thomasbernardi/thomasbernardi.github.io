@@ -4,7 +4,7 @@
 
 layout: default
 ---
-![Image](/assets/colchuck.jpg)
+![Image](/assets/colchuck.JPG)
 
 I am a Junior at the University of Washington as an undergraduate in the Paul Allen School of Computer science. I am active at my local food bank and sometimes volunteer with UW's Circle K International club and I live for rainy days with running club! I currently work as a software development intern at Logic20/20 working on T-Mobile's BOM Aggregation Tool. For 9 years I participated in Future Problem Solving (fpspi.org) as a student and this will be my third year as an evaluator!
 
