@@ -3,6 +3,7 @@ layout: default
 title: Resume
 ---
 
+[PDF Version]({{ site.url }}/assets/resume.pdf)
 ## Education
 
 | University of Washington | Computer Science | GPA: *3.92/4.0* |
