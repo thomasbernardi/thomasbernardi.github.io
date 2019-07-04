@@ -21,7 +21,7 @@ title: Resume
 
 | Software Engineering Intern | Logic20/20 <br/> *Full Stack Web Development* | September - December 2018 |
 | Research in Formal Methods | LIRMM (CNRS/University of Montpellier) <br/> *Software Development in OCaml* | May - July 2018 |
-| Software Engineering Intern | Fittraction <br/> *Front End Web Development* | July - August2017 |
+| Software Engineering Intern | Fittraction <br/> *Front End Web Development* | July - August 2017 |
 | Web Development | Freelancing | June 2017 |
 | Technical Market Researcher | ITF Pharma / Women’s Choice Pharmaceuticals {::nomarkdown}<ul><li><i>Full Time Internat HQ in Pennsylvania - Summer 2016</i></li><li><i>Part Time Consultant (Remotely Employed) - 2017 - 2018</i></li></ul>{:/} | June 2016 - January 2018 |
 | Technology Intern | Snohomish School District IT Department <br/>*Installed, configured and commissioned various technologies in classrooms and district facilities*| June - August 2015 |
