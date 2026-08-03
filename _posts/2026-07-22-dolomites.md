@@ -10,9 +10,9 @@ title: "Hiking in the Dolomites"
 Delirious from flights, waiting for our 
 train in Rome. It’s like 90 degrees outside
 
-![Tommy in Rome](../assets/IMG_2065.jpeg)
+![Tommy in Rome](/assets/IMG_2065.jpeg)
 
-![Sam in Rome](../assets/IMG_1942.jpeg)
+![Sam in Rome](/assets/IMG_1942.jpeg)
 
 ### Padua
 
@@ -20,7 +20,7 @@ Hung out with my friend Laura while we tried
 to recover from jet lag before the hike. 
 Tried and failed to avoid afternoon naps.
 
-![Sam and Laura in Padua](../assets/IMG_1950.jpeg)
+![Sam and Laura in Padua](/assets/IMG_1950.jpeg)
 
 ## Alta Via
 
