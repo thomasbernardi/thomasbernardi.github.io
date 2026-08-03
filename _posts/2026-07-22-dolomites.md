@@ -1,3 +1,8 @@
+---
+layout: post
+title: "Hiking in the Dolomites"
+---
+
 # The Dolomites
 
 ### Rome
