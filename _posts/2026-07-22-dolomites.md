@@ -108,8 +108,14 @@ lost and found. Got back to the hotel and
 found my wallet under my laundry, which I 
 had placed on my bedside table.
 
+![Voew from Inside](/assets/dolomites/photo-19.jpeg)
+
 
 WWI trench with the best view?
+
+![Trench](/assets/dolomites/photo-20.jpeg)
+![Sam Climbs Down](/assets/dolomites/photo-21.jpeg)
+![Sam in a Tunnel](/assets/dolomites/photo-22.jpeg)
 
 
 ### Day 5
