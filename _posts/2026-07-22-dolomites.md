@@ -28,24 +28,37 @@ Tried and failed to avoid afternoon naps.
 
 Starting point after 5 hours of bus!
 
+![Starting Point](/assets/dolomites/photo-4.jpeg)
+
 View of Lago di Briaes, traditional starting 
 point of Alta Via 1.
 
+![View of Lago di Briaes](/assets/dolomites/photo-5.jpeg)
+
 In disbelief that it starts off this good.
+
+![Hiking Uphill](/assets/dolomites/photo-6.jpeg)
 
 Dusk vibes from the first rifugio. 
 Showers were not working but there were 
 plenty of full water bottles in the shower 
 to use.
 
+![Dusk Colors](/assets/dolomites/photo-7.jpeg)
+
 ### Day 2
 
 A short day with very steep downhill.
+
 First of many mountainous coffee stops of 
 the trip.
+![Mountain Top Espresso and Coca](/assets/dolomites/photo-8.jpeg)
+![sam Hiles Downhill](/assets/dolomites/photo-9.jpeg)
 
 Pony and cows!
 
+![A Pony](/assets/dolomites/photo-10.jpeg)
+![The Rifugio Far Away](/assets/dolomites/photo-11.jpeg)
 
 ### Day 3
 
@@ -56,15 +69,21 @@ Loved how every corner seemed to hide a
 new pass or meadow or pasture unlike any 
 we’d seen before.
 
+![Sam and Tommy Selfie](/assets/dolomites/photo-12.jpeg)
+![Sam Hikes towards a Pass](/assets/dolomites/photo-13.jpeg)
+![Sam Chillin at the Pass](/assets/dolomites/photo-14.jpeg)
 
 We don’t quite believe we’re gonna go down 
 from this pass
 
+![Scary Descent](/assets/dolomites/photo-15.jpeg)
 
 Two photos looking back at the pass we 
 descended from.
 
-
+![Looking Back](/assets/dolomites/photo-16.jpeg)
+![Very Rocky](/assets/dolomites/photo-17.jpeg)
+![Signs](/assets/dolomites/photo-18.jpeg)
 
 
 ### Day 4
