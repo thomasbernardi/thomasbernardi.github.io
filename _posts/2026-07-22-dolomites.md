@@ -167,10 +167,14 @@ drying an evening thunderstorm came through.
 Pretty much everyone had clothes hanging off 
 their backpacks the next day.
 
+![Sam Ponders a Field](/assets/dolomites/photo-33.jpeg)
 
 Flowers were popping of the whole way. 
 This was the first time I thought to 
 photograph it :3
+
+![Flowers and Mountain](/assets/dolomites/photo-34.jpeg)
+![Flowers and Cloud](/assets/dolomites/photo-35.jpeg)
 
 This was the first day we had a good amount 
 of time to play guitar. Our friend Carlos 
@@ -179,8 +183,7 @@ John Denver so we played Country Roads.
 We were told later that everyone who could 
 hear us sang along.
 
-Reserved for doggo
-
+![Sam and Thomas Play Guitar](/assets/dolomites/photo-36.jpeg)
 
 We ordered a Skiwasser and Bombardino from 
 the menu since we didn’t know what they were. 
@@ -190,4 +193,11 @@ go together. Skiwasser was a raspberry
 flavored water. Bombardino was an egg nog, 
 though very different than I’m used to. 
 Bombardino apparently means “little bomb”.
+
+![Bombardino](/assets/dolomites/photo-37.jpeg)
+
+Reserved for doggo
+
+![Doggo](/assets/dolomites/photo-38.jpeg)
+
 
