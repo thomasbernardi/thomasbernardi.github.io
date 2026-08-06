@@ -130,14 +130,24 @@ towering peaks through meadow after meadow.
 Some cows along the way.
 
 Cinque Torri!!
-
+![Cinque Torri](/assets/dolomites/photo-23.jpeg)
+![Sam Cresting the Climb](/assets/dolomites/photo-24.jpeg)
+![Panorama](/assets/dolomites/photo-25.jpeg)
+![Meadowy Valley](/assets/dolomites/photo-26.jpeg)
+![Selfie before Pass](/assets/dolomites/photo-27.jpeg)
 
 Cows!!
+![Cows](/assets/dolomites/photo-28.jpeg)
 
 We started the day riiiiiight there!
+![Sam Points Faw Away](/assets/dolomites/photo-29.jpeg)
+![Persoective](/assets/dolomites/photo-30.jpeg)
+![Cloudy Perpective](/assets/dolomites/photo-31.jpeg)
+
 
 This rifugio had weird vibes, but the 
 cutest doggos
+![Sleeping Doggo](/assets/dolomites/photo-32.jpeg)
 
 ### Day 6
 
