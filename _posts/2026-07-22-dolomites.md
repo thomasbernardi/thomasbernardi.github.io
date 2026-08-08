@@ -201,3 +201,53 @@ Reserved for doggo
 ![Doggo](/assets/dolomites/photo-38.jpeg)
 
 
+### Day 7
+
+Whîe this wasn't going to be a long day,
+we did anticipate a good amount of elevation
+and steep at that! There were at least three
+good passed for us to go over. I was
+looking forward to another day where we'd
+get in at a decent hour and get to play
+guitar and maybe some cards.
+
+About half	way through the day, however, I
+realized I forgot my sleeping bag liner
+at the rifugio! Though they do sell liners
+at many rifugios, mine is particularly
+lightweight and not too warm. So I
+stashed my stuff at the next rifugio on
+our path, double checked that we had good
+weather in the forecast, and ran back to
+that morning's rifugio.
+
+I did try to be conservative in estimating
+how long the run would take but I definitely
+underestimated--forgetting that the
+elevation and terrain ahead of me would
+mean that rather than running, I would
+be fast hiking. I did my best to keep
+Sam informed of where I was but today I
+had some of the worst cell coverage of the
+trip.
+
+In any case, I managed to get to the rifugio
+in time for dinner!
+
+![Meadow Path and Cliff](/assets/dolomites/photo-39.jpeg)
+
+
+![Jumping](/assets/dolomites/photo-40.jpeg)
+
+
+![On a Trail Run](/assets/dolomites/photo-41.jpeg)
+
+#### Cows! 
+These cows were right outside our rifugio
+so we got to hear them all night!
+
+![Cows](/assets/dolomites/photo-42.jpeg)
+
+
+![More Cows](/assets/dolomites/photo-43.jpeg)
+
