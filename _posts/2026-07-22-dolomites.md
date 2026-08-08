@@ -251,3 +251,68 @@ so we got to hear them all night!
 
 ![More Cows](/assets/dolomites/photo-43.jpeg)
 
+### Day 8
+
+We were happy to have a chiller day ahead
+of us this morning. I'll admit I was growing
+a bit tired of all the rocks and steep ups
+and downs, though this *is* what I signed up
+for choosing to do an *Alta* Via.
+
+Today was yet another gorgeous day with many
+cows and views to be had.
+
+![Sam and Cow](/assets/dolomites/photo-44.jpeg)
+
+![Cows and Valley](/assets/dolomites/photo-45.jpeg)
+
+![Close Up Cow](/assets/dolomites/photo-46.jpeg)
+
+![Big View](/assets/dolomites/photo-47.jpeg)
+
+![Mountain in Cloud](/assets/dolomites/photo-48.jpeg)
+
+![Rocky Path](/assets/dolomites/photo-49.jpeg)
+
+![Green Valley](/assets/dolomites/photo-50.jpeg)
+
+![Hello Cow](/assets/dolomites/photo-51.jpeg)
+
+![Cows and Cliff](/assets/dolomites/photo-52.jpeg)
+
+![View from Rifugio](/assets/dolomites/photo-53.jpeg)
+
+This specific location was not a rifugio but
+rather a "Malga", which, from what I
+understand, is a summer mountain farm.
+Farmers bring their cows up in the summer,
+and they go back down to the lowlands for
+the winter.
+
+This specific location was an "Agrotourismo"
+destination, which seem to be a way to keep
+farming tradition alive in a time when it is
+less relevant. Lucky for us it meant some
+really amazing dairy. The location was
+run by a family and our milk and yogurt and
+cheese had clearly just come from the cows.
+
+What was even better, our trail family were
+the only ones there so we had the run of the
+place. This meant a hilarious tournament
+of Uno wherein ruled were made up and the
+winner of the round had to sing a song.
+Everyone was fond of my rendition of
+Father and Son, but when I won a second time
+everyone was less thrilled when I tested
+the limits of my vocal range to sing
+"Red Wine Supernova".
+
+![The Crew at Dinner](/assets/dolomites/photo-54.jpeg)
+
+![Dusk View from Rifugio](/assets/dolomites/photo-55.jpeg)
+
+![The Crew after Uno](/assets/dolomites/photo-56.jpeg)
+
+
+
