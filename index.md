@@ -6,4 +6,4 @@ layout: default
 ---
 
 
-[Backpacking the Dolomites]({% post_url 2026-07-22-dolomites})
+[Backpacking the Dolomites]({% post_url 2026-07-22-dolomites %})
