@@ -314,5 +314,73 @@ the limits of my vocal range to sing
 
 ![The Crew after Uno](/assets/dolomites/photo-56.jpeg)
 
+### Day 9
+
+
+We went into this trip expecting afternoon
+thunderstorms most days, but managed to
+avoid thunderstorms except for a few evenings
+when we were already safely in the comfort
+of our rifugio. Today, however, the weather
+decided to be much moodier.
+
+Today also turned out to have some of the
+sketchiest, most knife edge hiking of the
+whole trip, along with some impossibly
+steep descents. Unfortunately, maybe an
+hour ahead of us someone slipped and fell
+a good distance along this descent.
+Fortunately there was a Caribinieri officer
+who witnessed this happen and was able to
+perform CPR and call for a helicopter.
+
+Hearing about this made for rather
+solemn hiking for the second half of the
+day. This hike was, however, stunning as we
+hiked in and out of thunder showers, over
+spectacular passes and through grassy meadows
+(forever my favorite). Down and down and
+down we hiked, so much down we never thought
+it would end...
+
+![Moody Closeup](/assets/dolomites/photo-57.jpeg)
+
+![Foggy Selfie](/assets/dolomites/photo-58.jpeg)
+
+![Alta Via 1](/assets/dolomites/photo-59.jpeg)
+
+![Foggy Flowers](/assets/dolomites/photo-60.jpeg)
+
+![Sam in the Distance](/assets/dolomites/photo-61.jpeg)
+
+One of the few animals we spotted on the
+trip, probably since the trail is so
+popular...
+![Fauna](/assets/dolomites/photo-62.jpeg)
+
+![Steep Meadow](/assets/dolomites/photo-63.jpeg)
+
+Arrived at the rifugio and found out showers
+cost 7 euros!! Decided to take a sponge bath
+instead...
+
+Once that was through it was time to
+celebrate a birthday in our trail family. I
+think we re-sang happy birthday since the
+first time we forgot to film everything.
+A lively dinner was had, followed by another
+legendary game of uno as well as a game that
+involved choosing an animal sound and
+flipping over cards to see whose animal
+sound you had to try to make.
+
+During the second round of uno I stepped
+outside to watch an epic thunderstorm
+roll through. Our friends thought it was
+funny that I was so interested in a
+thunderstorm, but maybe didn't realize
+how rare they were for me.
+![Thunderstorm](/assets/dolomites/photo-64.jpeg)
+
 
 
