@@ -382,5 +382,30 @@ thunderstorm, but maybe didn't realize
 how rare they were for me.
 ![Thunderstorm](/assets/dolomites/photo-64.jpeg)
 
+### Day 10
+
+Our final day! We were looking forward to
+a short and gradual downhill.  The hike
+turned out to be a pretty novel day as most
+of it was in the woods, while other days
+were very much exposed. After ten days of
+long and arduous hiking, Sam and I were both
+looking forward to a nice shower and some rest.
+
+As usual we moseyed out without too much of a
+timeline and somehow managed to reach the bus
+stop right as the bus was pulling in. It was
+a beautiful ride and a nice time to reflect on
+the adventure with our fellow hikers and exchange
+photos.
+
+![Sam in Woods](/assets/dolomites/photo-65.jpeg)
+
+![Tommy in Woods](/assets/dolomites/photo-66.jpeg)
+
+![Bus Rid](/assets/dolomites/photo-67.jpeg)
+
+
+
 
 
