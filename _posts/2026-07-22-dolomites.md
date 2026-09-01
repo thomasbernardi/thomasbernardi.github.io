@@ -403,9 +403,9 @@ photos.
 
 ![Tommy in Woods](/assets/dolomites/photo-66.jpeg)
 
-![Bus Rid](/assets/dolomites/photo-67.jpeg)
+![Bus Ride](/assets/dolomites/photo-67.jpeg)
 
-
+Bye bye Alta Via!
 
 
 
