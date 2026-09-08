@@ -5,8 +5,8 @@
 layout: default
 ---
 
-[![Day Hikes in the Dolomites](/assets/thumbnails/dolomites-2.jpeg)]({% post_url 2026-07-18-dolomites %})
-[Day Hikes in the Dolomites]({% post_url 2026-07-18-dolomites %})
+[![Day Hikes in the Dolomites](/assets/thumbnails/dolomites-2.jpeg)]({% post_url 2026-07-18-dolomites-2 %})
+[Day Hikes in the Dolomites]({% post_url 2026-07-18-dolomites-2 %})
 
 ---
 
