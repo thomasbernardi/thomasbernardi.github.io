@@ -131,6 +131,55 @@ so we could be away from passing cars.
 
 ![Tents](/assets/milk-route/photo-13.jpeg)
 
+### Day 3
+
+Another dewy morning; buying a single-walled tent
+wasn't necessarily a mistake but it did mean I
+had to be careful to wipe off the condensation if 
+I didn't want to get wet moving around in the
+morning. I was very appreciative of the sunshine
+which helped our stuff dry out a bit.
+
+We shared another breakfast of ramen, packed up
+and headed off!
+
+![Ramen](/assets/milk-route/photo-14.jpeg)
+
+![Morning Departure](/assets/milk-route/photo-15.jpeg)
+
+The day started with yet another climb, but
+nothing we couldn't handle a few days into our
+trip.
+
+![Hill](/assets/milk-route/photo-16.jpeg)
+
+After the climb we sped back down into the next
+valley and stopped at a creek for a quick lunch.
+We continued through some farmland and back up
+into more meadow. Our plan for the night was to
+stay in a hut a mile or so off the gravel road
+which would require some hiking with our bikes.
+This turned out to be pretty difficult and I was
+ready to give up on the hut and just camp. But
+Lars and Sam both insisted we continue.
+
+![Selfie](/assets/milk-route/photo-18.jpeg)
+
+![Tommy Mountain Biking](/assets/milk-route/photo-19.jpeg)
+
+![Big View](/assets/milk-route/photo-20.jpeg)
+
+The hut turned out to be well worth the hike. Not 
+only was it a nice warm refuge, but it was in an
+absolutely stunning location. We did laundry,
+dried out our tents, enjoyed some risotto and
+took freezing cold bucket showers behind the 
+cabin.
+
+![View of Hut](/assets/milk-route/photo-21.jpeg)
+
+![View from Hut](/assets/milk-route/photo-22.jpeg)
+
 
 
 
