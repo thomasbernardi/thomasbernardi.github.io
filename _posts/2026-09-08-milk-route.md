@@ -81,3 +81,58 @@ and set up camp.
 
 Tommy and Sam are tent buddies:
 ![Tent Buddies](/assets/milk-route/photo-6.jpeg)
+
+### Day 2
+
+The morning was chilly and a bit dewy as we made
+our breakfasts of instant ramen and I made my
+coffee. We took quite a while to pack up and get
+out as we were learning our pack setups.
+
+The ride started off with a big climb which we
+powered up maybe a bit faster than would be
+sustainable, but felt satisfied when we reached
+the top. We were then rewarded with relatively
+flat ride through gorgeous meadows. We even saw 
+a cow.
+
+![Sam Sees a Cow](/assets/milk-route/photo-7.jpeg)
+
+![Biking Buddies](/assets/milk-route/photo-8.jpeg)
+
+![Quick Stop](/assets/milk-route/photo-9.jpeg)
+
+As we continued Sam stated his desire for a hot
+meal. Shortly after we came across a sign for
+kaffe for which I immediately stated my desire.
+We stopped and had waffles with sour cream, jam
+and brown cheese. I had coffee. We made a
+gameplan for the rest of the day, including
+a grocery stop and a general idea for where to
+camp (we would do one of the big hills today and
+save one for tomorrow morning).
+
+Intense debate about groceries:
+![Grocery Debate](/assets/milk-route/photo-10.jpeg)
+
+After the grocery store we had a long downhill
+section we got to speed down and some flat easy
+riding before the up.
+
+![Flat and Easy](/assets/milk-route/photo-11.jpeg)
+
+Based on our map we aimed for an area that was
+uninhabited and looked to have a stream nearby.
+It turned out to be easy to find and there was
+even a little trail leading away from the road 
+so we could be away from passing cars.
+
+![Camp Kitchen](/assets/milk-route/photo-12.jpeg)
+
+![Tents](/assets/milk-route/photo-13.jpeg)
+
+
+
+
+
+
