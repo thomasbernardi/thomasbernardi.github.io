@@ -180,7 +180,96 @@ cabin.
 
 ![View from Hut](/assets/milk-route/photo-22.jpeg)
 
+### Day 4
 
+Today I woke up sick.  I hoped I would feel 
+better as I woke
+up and got food and coffee in me but it quickly 
+became clear that I had a cold or something.
+Spirits were a little low
+as the last couple days were cold and we had
+spent so much time fiddling with Sam's rental
+equipment. But we set off, hopeful for the day.
+
+The first two miles we returned along the
+hike-a-bike trail we had climbed. It was much
+easier going downhill.
+
+![Bag Boy](/assets/milk-route/photo-23.jpeg)
+
+![Lars Hikes a Bike](/assets/milk-route/photo-24.jpeg)
+
+The bag Sam got with his rental bike completely
+failed so we figured out a way to attach it for
+the day and planned on finding a replacement when
+we got into town.
+
+![Fixing Sam's Bag](/assets/milk-route/photo-25.jpeg)
+
+The ride started off with a brief section of flat
+before climbing slowly into the clouds.
+
+![Climb into Cloud](/assets/milk-route/photo-26.jpeg)
+
+We stayed in the clouds for a mile or two and
+the dropped back down where we were met with
+views of a vast lake nestled in the valley.
+
+![View of Lake](/assets/milk-route/photo-27.jpeg)
+
+I noticed on our map that there was a serviced hut
+about halfway along the lake and decided we would
+stop there for a break. I needed it.
+
+![Warm Food and Drink](/assets/milk-route/photo-28.jpeg)
+
+I was feeling bad enough that I didn't really
+enjoy the stop though I knew I needed the warmth
+and the break. The receptionist let us dry off
+our socks that had, in theory, been drying on the
+back of our bikes. They had a nice drying rack
+downstairs.
+
+Still shocked by the food prices in Norway I
+ordered an eggy pancake and coffee, happy to
+get some warm food. The dish turned out to be
+pretty similar to a Kaiserschmarn, a dish I had
+really enjoyed back in the Dolomites.
+
+Once I had eaten I started scheming ways to
+shorten our day and find a warm place to stay.
+The answer could have been the very place we were
+eating, but for some reason it unnerved me a
+little and the thought hadnt occured to me.
+Fortunately the next town over had several
+available and reasonably priced cabins--a big
+benefit of traveling during shoulder seasons.
+
+Armed with a plan we headed back out into the
+cold and started biking again. We followed along
+the lake for a bit, then headed back up into the
+clouds...
+
+![Lars and Tommy](/assets/milk-route/photo-29.jpeg)
+
+![Sam and Tommy](/assets/milk-route/photo-30.jpeg)
+
+![Dorky Tommy](/assets/milk-route/photo-31.jpeg)
+
+![Dorky Lars](/assets/milk-route/photo-32.jpeg)
+
+We finally hit the top of the hill and layered up
+for the descent. As we set off donwhill it began
+to rain. It took until my legs were really
+starting to get soaked before I insisted we stop
+so I could put rain pants on.
+
+![Layering Up](/assets/milk-route/photo-23.jpeg)
+
+The rest of the ride was quick and freezing cold.
+We arrived in town just in time to buy Sam a new
+bag for his bike. After that we loaded up on
+groceries and headed straight for the cabin.
 
 
 
