@@ -272,5 +272,9 @@ bag for his bike. After that we loaded up on
 groceries and headed straight for the cabin.
 
 
+### Day 5
+#### Rest Day
 
+![Sam Swings](/assets/milk-route/photo-34.jpeg)
 
+We watched Kiki's Delivery Service.
