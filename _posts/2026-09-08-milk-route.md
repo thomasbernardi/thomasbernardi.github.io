@@ -264,7 +264,7 @@ to rain. It took until my legs were really
 starting to get soaked before I insisted we stop
 so I could put rain pants on.
 
-![Layering Up](/assets/milk-route/photo-23.jpeg)
+![Layering Up](/assets/milk-route/photo-33.jpeg)
 
 The rest of the ride was quick and freezing cold.
 We arrived in town just in time to buy Sam a new
