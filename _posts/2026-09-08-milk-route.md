@@ -278,3 +278,47 @@ groceries and headed straight for the cabin.
 ![Sam Swings](/assets/milk-route/photo-34.jpeg)
 
 We watched Kiki's Delivery Service.
+
+### Day 6
+
+Since I was still feeling a little sick, we
+shortened our route for the day. Fortunately
+there was a hut just about 20 miles away--a 
+distance we coule cover in a day at an easy pace. 
+
+![The Bois](/assets/milk-route/photo-35.jpeg)
+
+The day, of course, included a couple climbs, but
+also some really fun downhill.
+
+![Barn](/assets/milk-route/photo-36.jpeg)
+
+We stopped at a cafe. The king's funeral
+procession was playing on TV. I took the chance
+to rest and gain strength for the rest of the 
+ride.
+
+![Bored at Cafe](/assets/milk-route/photo-37.jpeg)
+
+The rest of the ride was another climb up to the 
+cabin. Along the way we made a bunch of sheep
+friends. They all came running up to us at once,
+all their sheep bells clanging and then stopped,
+looking at us expectantly.
+
+![Sam Loves Sheep](/assets/milk-route/photo-38.jpeg)
+
+![Sheep Hangin](/assets/milk-route/photo-39.jpeg)
+
+![Pretty View](/assets/milk-route/photo-40.jpeg)
+
+![Sam Victorious](/assets/milk-route/photo-41.jpeg)
+
+It was a relief to get to the cabin and warm up.
+The view was pretty sweet:
+
+![View from the Cabin](/assets/milk-route/photo-42.jpeg)
+
+
+
+
