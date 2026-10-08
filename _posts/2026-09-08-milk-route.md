@@ -352,6 +352,67 @@ feeling sick.
 
 ![Sick Sam](/assets/milk-route/photo-50.jpeg)
 
+### Day 8
+
+At some point we decided we would not make it to
+Flåm, where we were hoping to get some Fjord
+action. We had considered biking to Gol and
+then taking the train but it turned out the
+trains were booked. So we settled on making it to
+Gol andtaking the train home.
+
+Since Sam was feeling sick we found a route that
+would take us ten miles to a bus stop and then
+we could but to Gol.
+
+![Sam and Lars Riding](/assets/milk-route/photo-51.jpeg)
+
+![Lake](/assets/milk-route/photo-52.jpeg)
+
+We saw cows ane ponies along the way!
+
+![Cows](/assets/milk-route/photo-53.jpeg)
+
+![Ponies](/assets/milk-route/photo-54.jpeg)
+
+Though we hadn't gone far we took a chance to
+warm up and have coffee when presented with one.
+
+![Pit Stop](/assets/milk-route/photo-55.jpeg)
+
+When the bus pulled up the driver shook his head.
+Three bikes would not fit. We asked if one of us
+could ride the bus with our bike and he agreed.
+We helped Sam load his bike and sent him on his
+way and then chased after him. The descent into
+Gol was a very fun ride, though it did start
+raining as we reached the bottom.
+
+![Speedy Lars](/assets/milk-route/photo-56.jpeg)
+
+![View of Gol](/assets/milk-route/photo-57.jpeg)
+
+
+And just like that our ride was over. It felt
+a little anti-climactic since two of us had
+gotten sick and the trip ended up shorter than
+planned. Surely there's some lesson there...
+
+### Day 9
+
+The train ride took over five hours--Norwegians
+seem to appreciate but not be impressed by their
+rail system.
+
+![Train Station](/assets/milk-route/photo-58.jpeg)
+
+
+We got back with time enough for dinner and
+celebrated completing the trip with pizza and
+beer.
+
+
+
 
 
 
