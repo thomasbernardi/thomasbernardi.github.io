@@ -319,6 +319,43 @@ The view was pretty sweet:
 
 ![View from the Cabin](/assets/milk-route/photo-42.jpeg)
 
+### Day 7
+
+Day 7 was another shorter day, and this time
+not nearly as hilly. The weather was fair and
+the ride was easy.
+
+![Sam ane Lars](/assets/milk-route/photo-43.jpeg)
+
+![Landscape](/assets/milk-route/photo-44.jpeg)
+
+![Biking Selfie](/assets/milk-route/photo-45.jpeg)
+
+![Silhouettes](/assets/milk-route/photo-46.jpeg)
+
+When we rolled up to our DNT cabi. we weren't
+sure where to go. It turned out we'd be in
+a converted barn on a dairy farm. We were
+greeted appropriately.
+
+![Cow Greetint Committee](/assets/milk-route/photo-47.jpeg)
+
+It was such a nice day we spent the rest if the
+afternoon lazing around outside.
+
+![Sam Lazing](/assets/milk-route/photo-48.jpeg)
+
+![Cow Lazing](/assets/milk-route/photo-49.jpeg)
+
+Unfortunately, today it was Sam's turn to start
+feeling sick.
+
+![Sick Sam](/assets/milk-route/photo-50.jpeg)
+
+
+
+
+
 
 
 
