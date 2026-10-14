@@ -16,3 +16,11 @@ layout: default
 [![Backpacking the Dolomites](/assets/thumbnails/dolomites.jpeg)]({% post_url 2026-07-15-dolomites %})
 
 [Backpacking the Dolomites: Alta Via 1]({% post_url 2026-07-15-dolomites %})
+
+<ul>
+  {% for post in site.posts %}
+    <li>
+      <a href="{{ post.url }}">{{ post.title }}</a>
+    </li>
+  {% endfor %}
+</ul>
