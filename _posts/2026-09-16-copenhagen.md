@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Weekend in Copenhagen"
-thumbnail: "/assest/thumbnails/copenhagen.jpeg"
+thumbnail: "/assets/thumbnails/copenhagen.jpeg"
 ---
 
 Between our bikepacking and backpacking trip we
