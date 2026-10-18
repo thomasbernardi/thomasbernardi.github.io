@@ -1,0 +1,10 @@
+  ---
+  layout: default
+  ---
+  
+  <head>
+    <meta property="og:title" content="{{page.title | default: site.title}}">
+    <meta property="og:image" content="{{page.thumbnail | default: site.thumbnail }}">
+  </head>
+
+  {{content}}
