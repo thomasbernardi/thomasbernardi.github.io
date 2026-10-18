@@ -65,7 +65,7 @@ thumbnail: "assets/thumbnails/vestland.jpeg"
 
 ![Sam Hiking](/assets/vestland/fjord-14.jpeg)
 
-### Hike from Undredal to Gridnaflytte
+### Hike from Undredal to Gridnaflet
 
 #### Up the Valley
 ![Up the River](/assets/vestland/undredal-1.jpeg)
@@ -97,7 +97,7 @@ thumbnail: "assets/thumbnails/vestland.jpeg"
 
 ![Leaving Camp](/assets/vestland/undredal-14.jpeg)
 
-#### Up to Grindaflytte
+#### Up to Grindaflet
 ![Path](/assets/vestland/undredal-15.jpeg)
 
 ![Sam Bandages a Blister](/assets/vestland/undredal-16.jpeg)
@@ -119,3 +119,89 @@ thumbnail: "assets/thumbnails/vestland.jpeg"
 ![Sam Snow Fog](/assets/vestland/undredal-24.jpeg)
 
 ![Sam Hiking in Fog](/assets/vestland/undredal-25.jpeg)
+
+### 3 Nights at Gridnaflethyyta
+
+![Hut in the Fog](/assets/vestland/grinda-1.jpeg)
+
+#### First Trail Run
+![Panorama](/assets/vestland/grinda-2.jpeg)
+
+![Trail Markers](/assets/vestland/grinda-3.jpeg)
+
+![More Foggy Hut](/assets/vestland/grinda-4.jpeg)
+
+![Inside the Hut](/assets/vestland/grinda-5.jpeg)
+
+#### Second Trail Run
+![Panorama](/assets/vestland/grinda-6.jpeg)
+
+![Mountaintop Selfie](/assets/vestland/grinda-7.jpeg)
+
+![Alpine Lakes](/assets/vestland/grinda-8.jpeg)
+
+![Huts from Afar](/assets/vestland/grinda-9.jpeg)
+
+![Moonlight](/assets/vestland/grinda-10.jpeg)
+
+![Sunrise](/assets/vestland/grinda-11.jpeg)
+
+![Morning Lake](/assets/vestland/grinda-12.jpeg)
+
+### Hike to Voss
+![Sam at the Hut](/assets/vestland/grinda-13.jpeg)
+
+![Sam makes a Heart](/assets/vestland/grinda-14.jpeg)
+
+![Mirror Mountain](/assets/vestland/grinda-15.jpeg)
+
+![Sam Points Back](/assets/vestland/grinda-16.jpeg)
+
+![Wet Meadows](/assets/vestland/grinda-17.jpeg)
+
+![Alpine Pond](/assets/vestland/grinda-18.jpeg)
+
+![Wet Selfie](/assets/vestland/grinda-19.jpeg)
+
+![Sam High Up](/assets/vestland/grinda-20.jpeg)
+
+![Sign Post](/assets/vestland/grinda-21.jpeg)
+
+![Wet River](/assets/vestland/grinda-22.jpeg)
+
+### Hiking in Voss
+
+![Train Station](/assets/vestland/voss-1.jpeg)
+
+![Up the Valley](/assets/vestland/voss-2.jpeg)
+
+![Sam and Tommy Selfie](/assets/vestland/voss-3.jpeg)
+
+![Sam in Meadow](/assets/vestland/voss-4.jpeg)
+
+![Sam and Tommy Selfie](/assets/vestland/voss-5.jpeg)
+
+![Trail Market](/assets/vestland/voss-6.jpeg)
+
+#### Three Nights Kaldavass
+![Sam Hiking](/assets/vestland/voss-7.jpeg)
+
+![Sam Meditating](/assets/vestland/voss-8.jpeg)
+
+![Hut above a Lake](/assets/vestland/voss-9.jpeg)
+
+![Sleepy Sam](/assets/vestland/voss-10.jpeg)
+
+![Sun through Window](/assets/vestland/voss-11.jpeg)
+
+![Cairn](/assets/vestland/voss-13.jpeg)
+
+![Little Lake](/assets/vestland/voss-14.jpeg)
+
+![Hiking Sam](/assets/vestland/voss-15.jpeg)
+
+![Smiling Sam](/assets/vestland/voss-16.jpeg)
+
+![Fast Sam](/assets/vestland/voss-17.jpeg)
+
+![Thomas Has Good Posture](/assets/vestland/voss-18.jpeg)
