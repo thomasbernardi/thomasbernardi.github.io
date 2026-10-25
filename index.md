@@ -3,6 +3,8 @@
 # To modify the layout, see https://jekyllrb.com/docs/themes/#overriding-theme-defaults
 
 layout: default
+image: "/assets/thumbnails/site.jpeg"
+
 ---
 
 {% for post in site.posts %}
