@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Bike Packing in Norway"
-thumbnail: "assets/thumbnails/milk-route.jpeg"
+image: "assets/thumbnails/milk-route.jpeg"
 ---
 ### The Route
 This portion of the trip had been vaguely planned

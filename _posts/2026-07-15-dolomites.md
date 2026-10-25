@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Backpacking in the Dolomites: Alta Via 1"
-thumbnail: "assets/thumbnails/dolomites.jpeg"
+image: "assets/thumbnails/dolomites.jpeg"
 ---
 
 # The Dolomites

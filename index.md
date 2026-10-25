@@ -6,6 +6,6 @@ layout: default
 ---
 
 {% for post in site.posts %}
-  [![{{ post.title }}]({{ post.thumbnail }})]({{ post.url }})
+  [![{{ post.title }}]({{ post.image }})]({{ post.url }})
   [{{ post.title }}]({{ post.url }})
 {% endfor %}

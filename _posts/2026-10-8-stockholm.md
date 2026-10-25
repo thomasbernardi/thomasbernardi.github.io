@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Stockholm Archipelago"
-thumbnail: "/assets/thumbnails/stockholm.jpeg"
+image: "/assets/thumbnails/stockholm.jpeg"
 ---
 
 ![](/assets/stockholm/photo-1.jpeg)

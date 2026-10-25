@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Backpacking Through Vestland, Norway"
-thumbnail: "assets/thumbnails/vestland.jpeg"
+image: "assets/thumbnails/vestland.jpeg"
 ---
 
 ### Aurland 
